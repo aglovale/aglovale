@@ -2,7 +2,9 @@
 
 hello! i go by **vier**, and i use **he/him** pronouns *only*.
 
-physically disabled/wheelchair bound aromantic trans man.
+physically disabled/wheelchair bound aromantic trans man
+
+ISTJ 1w9-5w6-3w4 sp/so LSI choleric-melancholic
 
 **navigation:** [programming](#programming) | [ponytown](#ponytown)
 
@@ -20,6 +22,6 @@ i'm a fulltime junior software engineer but i do web development as a hobby! sti
 - c#
 
 ### ponytown
-if you're here for ponytown reasons, i have no interaction requirements! just be respectful and i'll do my best to be around for it. i'm still learning since i don't go online often, but if you give me a crown please know i'm extremely happy to receive regardless of response. 💚
+if you're here for ponytown reasons, i have no interaction requirements! just be respectful and i'll do my best to be around for it; i'm still learning since i don't go online often.
 
-my skins are usually of comfort characters; i do kin but i never make ponies of my kins. feel free to use as inspiration, i don't mind either way.
+my skins are usually of comfort characters; i do kin (spiritually) but i've yet to make ponies of my kintypes. feel free to use my skins as inspiration.
