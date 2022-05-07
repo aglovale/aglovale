@@ -4,7 +4,7 @@ hello! i go by **vier**, and i use **he/him** pronouns *only*.
 
 physically disabled/wheelchair bound aromantic trans man.
 
-**navigation:** [programming](https://github.com/aglovale/aglovale/edit/main/README.md#programming) | [ponytown](https://github.com/aglovale/aglovale/edit/main/README.md#ponytown)
+**navigation:** [programming](#programming) | [ponytown](#ponytown)
 
 ---
 
