@@ -22,6 +22,7 @@ i'm a fulltime junior software engineer but i do web development as a hobby! sti
 - c#
 
 ### ponytown
-if you're here for ponytown reasons, i have no interaction requirements! just be respectful and i'll do my best to be around for it; i'm still learning since i don't go online often.
+if you're here for ponytown reasons, i have no interaction requirements.
+just be respectful and i'll do my best to be around for it; i'm still learning since i don't go online often.
 
-my skins are usually of comfort characters; i do kin (spiritually) but i've yet to make ponies of my kintypes. feel free to use my skins as inspiration.
+my skins are usually of comfort characters so idc about doubles.
